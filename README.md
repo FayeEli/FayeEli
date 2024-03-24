@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FayeEli
 - 👀 I’m interested in UX/UI Design and Software Engineering
-- 🌱 I’m currently interning at Articodea
+- 🌱 I’m currently consulting at Articodea as a UX/UI Designer
 - 💞️ I’m looking to collaborate on creative and innovative projects
 - 📫 How to reach me: https://faeliza.com/
 - 😄 Pronouns: She/They
