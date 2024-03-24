@@ -2,7 +2,7 @@
 - 👀 I’m interested in UX/UI Design and Software Engineering
 - 🌱 I’m currently interning at Articodea
 - 💞️ I’m looking to collaborate on creative and innovative projects
-- 📫 How to reach me: [https://uxfol.io/f75e0ee1], (https://adorable-beijinho-0bc2b5.netlify.app/)
+- 📫 How to reach me: https://faeliza.com/
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I don't know how to ride a bicycle
 
