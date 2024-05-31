@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FayeEli
-- 👀 I’m interested in UX/UI Design and Software Engineering
+- 👀 I’m interested in UX/UI Design, Web and Software Development
 - 🌱 I’m currently consulting at Articodea as a UX/UI Designer
 - 💞️ I’m looking to collaborate on creative and innovative projects
 - 📫 How to reach me: https://faeliza.com/
